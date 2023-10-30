@@ -1,5 +1,4 @@
 # Hello, I'm Adhid158! 👋
-![Profile Picture](https://tr.rbxcdn.com/30DAY-AvatarHeadshot-69DB83CCFD05173ED2B550B81821C442-Png/200/200/AvatarHeadshot/Png/noFilter)
 
 ## About Me
   *Hacking Roblox for fun, learning, and pushing the boundaries of what's possible 🎮🚀*
